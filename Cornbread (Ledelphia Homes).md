@@ -1,5 +1,8 @@
 # Cornbread
 
+## Author
+Ledelphia Louise Holmes (Hastings)
+
 ## Level
 Easy
 
