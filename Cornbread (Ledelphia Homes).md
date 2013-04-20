@@ -1,4 +1,12 @@
-# Ingredients
+# Cornbread
+
+## Level
+Easy
+
+## Yield
+1 cast-iron pan's with
+
+## Ingredients
 * 1 US Cup flour (125 g).
 * 1 US Cup cornmeal.
 * 1 Cup milk.
@@ -7,10 +15,6 @@
 * 1/4 Cup Oil (59.15 mL).
 * Add white sugar as needed.
 
-# Mixing
+## Directions
 
-Mix all ingredients together. No special order.
-
-# Baking
-
-Pre-heat oven to 350° F (176° C). Pour mixed ingredients into a oiled cast-iron pan.  Bake for 20-25 minutes or until fork comes out clean.
+Mix all ingredients together.  No special order.  Pre-heat oven to 350° F (176° C). Pour mixed ingredients into a oiled cast-iron pan.  Bake for 20-25 minutes or until fork comes out clean.
