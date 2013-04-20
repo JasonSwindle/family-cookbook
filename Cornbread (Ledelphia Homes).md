@@ -7,7 +7,7 @@ Ledelphia Louise Holmes (Hastings)
 Easy
 
 ## Yield
-1 cast-iron pan's with
+1 cast-iron pan's worth.
 
 ## Ingredients
 * 1 US Cup flour (125 g).
