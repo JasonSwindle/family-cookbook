@@ -4,27 +4,27 @@
 ## About This Recipe
 **Author** : *Ledelphia Louise Holmes (Hastings)*
 
-**Level** : *Easy*
+**Level**: *Easy*
 
-**Yield** : *4 - 8 servings*
+**Yield**: *4 - 8 servings*
 
-**Total Time** : *35 minutes*
+**Total Time**: *35 minutes*
 
 
 ## Ingredients
-125 g / 1 cup Unbleached all-purpose flour 
+**125 g / 1 cup** Unbleached all-purpose flour 
 
-125 g / 1 cup cup cornmeal
+**125 g / 1 cup** cornmeal
 
-240 ml / 1 cup skim milk
+**240 ml / 1 cup** skim milk
 
-1 jumbo white egg
+**1 jumbo** white egg
 
-60 ml / 4 tablespoon baking powder
+**60 ml / 4 tablespoon** baking powder
 
-1/4 Cup oil (59.15 mL)
+**60 ml / 1/4 cup** oil 
 
-Add white sugar as needed
+**Note**: Add white sugar as needed
 
 
 ## Directions
