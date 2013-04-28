@@ -6,11 +6,10 @@
 
 **Level** : *Easy*
 
-**Yield** : *1 cast iron pan's worth*
+**Yield** : *4 - 8 servings*
 
 **Total Time** : *35 minutes*
 
-- - -
 
 ## Ingredients
 125 g / 1 cup Unbleached all-purpose flour 
@@ -27,7 +26,6 @@
 
 Add white sugar as needed
 
-- - -
 
 ## Directions
 
