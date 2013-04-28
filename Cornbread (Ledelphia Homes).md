@@ -29,8 +29,10 @@
 
 ## Directions
 
-1. Pre-heat oven to 350° F (176° C). Pour mixed ingredients into a oiled cast-iron pan.
+1. Pre-heat oven to 350° F (176° C). 
 
-2. Mix all ingredients together. 
+2. Mix all ingredients together.
 
-3. Bake for 20-25 minutes or until fork comes out clean.
+3. Pour mixed ingredients into a oiled cast-iron pan.
+
+4. Bake for 20-25 minutes or until fork comes out clean.
